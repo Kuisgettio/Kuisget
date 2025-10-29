@@ -10,4 +10,4 @@
 # 🍂 ,  About me
 -  .  Hello! kamusta! I'm Audrey or cheska. I love interacting or c+h (cuddle and hug)! . I joined ponytown 2022 and quited 2024! And came back paying pt on 2025!! :3  . I'm on docks saying questions for dice chan because I'm lazy yk!!. 🍂  ` I'm Filipino but also speaks Korean!! yes. I'm an artist and a gamer btw!! Feel free to be my friend btw! Because I'm lonely and alone but don't worry tho.. Pls don't interact to me if I'm afk!pls! it annoys me !!.. I love itsfunneh,KRIWF, Greek craft, lanarae , spilling the milk , laurenZside and fgteev!! My childhood yt.. Yelp 🍁 My interest are dws,Krew,Forsaken, and others I cannot think anymore guys.. " I hope you read all of this and thank you. goodbye!! pal!!!
 - And pls dont interact if your islamphobic,homophobic,Muslim hater,racist person..!!  🔥 . Dni pls!
--  ✈︎ also go follow to my friend nova's acc!! @baldhoefr  , follow rn!! Sign ata rnn . grr growls!
+-  ✈︎ also go follow to my friend nova's acc!! @baldhoefr  , follow rn!! Sign ata rnn . grr growls! />
